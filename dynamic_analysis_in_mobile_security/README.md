@@ -1,0 +1,1 @@
+Dinmaik ANALiz of mobile
